@@ -36,7 +36,7 @@
 
 ### 📬 Let's Connect
 
-- [LinkedIn]:(https://www.linkedin.com/in/vikram-kumar-51b9a1247/)  
+- LinkedIn:(https://www.linkedin.com/in/vikram-kumar-51b9a1247/)
 - 📧 Email:(Vikram10072003@gmail.com) 
 - 🌐 Portfolio: [yourwebsite.com](https://yourwebsite.com)
 
